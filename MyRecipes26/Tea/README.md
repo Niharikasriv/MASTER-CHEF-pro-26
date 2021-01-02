@@ -1,0 +1,5 @@
+TEA
+A marvellous drink to spend your few relaxing mins. It does not requires a lot of skills or preperations just your interest.
+Tea is not a food dish but biscuits are the best going with it. Once you have become a Tea lover there is no other addiction like it. It has many benefits. Tea contains quite a lot of vitamins and minerals which will help build your strength. Vitamin H which is found in tea will help build your metabolism. It will also promote healthy skin as well as healthy hair. Vitamin D which helps to reduce depression and promote bone health is also found in tea.On headache also people prefer this soothing Drink.
+It is also your wish to choose what kind os tea tou want't to have green tea, Black tea, Ginger tea, Masala tea, Oolong tea etc.
+But to be honest I will prefer you the desi kadak Indian Chai(tea)!
